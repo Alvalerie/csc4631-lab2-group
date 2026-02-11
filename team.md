@@ -1,2 +1,2 @@
-Team lead: Nancy B
+Team lead: Nancy L
 
