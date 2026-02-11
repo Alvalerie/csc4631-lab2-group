@@ -1,3 +1,3 @@
-Team lead: Raymond Lapaanaaaaaaaa
+Team lead: Raymond 
 
 
